@@ -1,9 +1,9 @@
 # **Douglas Gabriel de Araújo Gomes**
 
 📍 Recife – Pernambuco
-📞 (Seu telefone)
-📧 (Seu e-mail)
-💼 LinkedIn: https://www.linkedin.com/in/(seu-usuario)
+📞 (81984776800)
+📧 (douglasgabriel9628@gmail.com)
+💼 LinkedIn: https://www.linkedin.com/in/douglas-gabriel
 🌐 Portfólio: https://douglas-sketch.github.io/eco-verify/
 💻 GitHub: https://github.com/Douglas-sketch
 
